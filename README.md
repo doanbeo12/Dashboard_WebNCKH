@@ -1,0 +1,1 @@
+![Uploading SoDochanketnoi.jpg…]()
